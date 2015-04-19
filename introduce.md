@@ -1,4 +1,4 @@
-![MC](mc.jpg)
+![MC](mc.JPG)
 
 **이름(한글)** : 신 민 철 [facebook](https://www.facebook.com/SMC1026)
 
